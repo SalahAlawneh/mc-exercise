@@ -1,4 +1,4 @@
 ## What do you call a fly with no wings?
-- A walking fly.
+- A chicken.
 
 
